@@ -1,13 +1,13 @@
 # A definitive comparison of plant vs animal products
 
 
-For those raising questions about the comparison between plant products and animal products (as you should! always important to make informed decisions), here is the criteria I used.
+For those raising questions about the comparison between plant products and animal products (As you should! It's always important to make informed decisions), here is the criteria I used.
 
 For those wanting to share this listing, this short and permanent link is available: `http://balupton.com/v`
 
 
 ## Goal
-This listing/comparison aims to be an argument proof factual listing of things going on, with the hopes remove all misinformation about plants vs animal products beyond and reasonable doubt. Constructive positive comments welcome. If you have something negative to say, try and think of an educational way of putting it, rather than an ego stroking "I'm right, you're wrong way" that just causes unnecessary defenses. Thanks!
+This listing/comparison aims to be an argument proof factual listing of things going on, with the hopes to remove all misinformation about plants vs animal products beyond any reasonable doubt. Constructive positive comments welcome. If you have something negative to say, try and think of an educational way of putting it, rather than an ego stroking "I'm right, you're on the wrong way" that just causes unnecessary defenses. Thanks!
 
 
 
